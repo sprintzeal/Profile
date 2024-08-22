@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About US:
 We at Sprintzeal Americas Inc. are committed to providing a learning environment based on:<br><br>Excellence - we provide quality courses in an exemplary teaching and learning environment to help professionals overcome the challenges of adult learning in today’s busy world<br><br>Diversity - by embracing diversity in all of its dimensions, we strive to become a model university that fosters international cooperation and the exchange of ideas, research, and knowledge<br><br>Integrity - we built this university using our high standards of character and integrity as foundations for growth<br><br>Flexibility - our use of state of the art technology allows members of our growing community to balance work, family, and professional development
 
 
